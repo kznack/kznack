@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @kznack
-- 👀 I’m interested in Badminton n games
-- 🌱 I’m currently learning Basics
-- 💞️ I’m looking to collaborate on No idea
-- 📫 How to reach me Discord, kznack#6633
+- 👀 I’m interested in badminton n games
+- 🌱 I’m currently learning basics
+- 💞️ I’m looking to collaborate, no idk what this means
+- 📫 How to reach me discord, kznack#6633
 
 <!---
 kznack/kznack is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
