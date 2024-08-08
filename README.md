@@ -1,5 +1,5 @@
 - I'm kznack
-- My current intrests are badminton and games
+- My current intrests are going to the gym and playing games
 - I’m currently learning basics of litreally everything
 - Reach me via discord, kznack#6633 or kznack
 
